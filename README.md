@@ -30,7 +30,7 @@
 
 ### 6. Contact Information
 
-   For any questions or concerns about these terms and the privacy policy, contact us at info@rouhbeirutapp.com.
+   For any questions or concerns about these terms and the privacy policy, contact us at info@RouhBeirut.Com.
 
 ---
 
